@@ -1,1 +1,0 @@
-wojtuś ma wielkie czoło
